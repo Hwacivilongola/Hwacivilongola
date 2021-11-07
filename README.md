@@ -1,7 +1,7 @@
 - 👋 Hi, I’m hwacivilongola/AlvinBalvin321, you can call me Alvin or hwac
-- 👀 I’m interested in idk
-- 🌱 I’m currently learning skol
-- 💞️ I’m looking to collaborate on idk
+- 👀 I’m interested in a lot of stuff (it changes a lot)
+- 🌱 I’m currently learning skol (and whatever I try to teach myself)
+- 💞️ I’m looking to collaborate on idk a game amybe
 - 📫 How to reach me hwac-alvin#4126 on discord
 
 <!---
